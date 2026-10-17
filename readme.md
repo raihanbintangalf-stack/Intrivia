@@ -10,3 +10,6 @@ Intrivia sangat mantap dan jos
 
 ## Kesan Pesan Cluster [Nomor Cluster] Sejauh Ini 
 Teman teman di cluster sangat oke dan kakak fasil juga sangat mantap.
+
+## Harapan Kuliah 
+Semoga saya lulus tepat waktu terus kerja di tempat yang gajinya gede terus punya istri 100. 
